@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-Dinezh111/Dinezh111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
----
+I  AM CURRENTLY FINISHED MY PYTHON TRAINING AT BESANT TECHNOLOGY
+I AM TRAINED FRESHER
+I COMPLETED 3 PROJECTS 
+WORKBENCH AND DGANJO ALSO I KNOW IN BEGGINING LEVEL
